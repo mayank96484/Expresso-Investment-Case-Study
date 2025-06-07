@@ -74,7 +74,7 @@ Results show investment is viable under most realistic assumptions.
 
 **Mayank Agarwal**  
 MSc Financial Technology | University of Liverpool  
-📧 hsmagarw@liverpool.ac.uk  
+📧 agarwalmayank517@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/mayank-agarwal-fintech/)
 
 ---
